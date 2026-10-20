@@ -1,0 +1,1 @@
+#esta pagina de va a tratar de mi y mia diferentes ustos de las cosa(sobre mi)
